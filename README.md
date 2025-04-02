@@ -1,4 +1,4 @@
-## Hi, I am Sayaf. Nice to meeet you 👋👋👋
+## Hi, I am Sayaf. Nice to meet you 👋👋👋
 
 
 **`Digital Craftsman: Exploring the Digital Frontier`**
